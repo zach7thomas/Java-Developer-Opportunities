@@ -9,4 +9,5 @@ Typically if a specific post is up, that specific job is open. I am always looki
 There are many opportunities availble in the DFW area, so please feel free to reach me at zthomas@teksystems.com 
 
 Best,
+
 Zachary J. Thomas 
